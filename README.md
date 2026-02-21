@@ -1,1 +1,1 @@
-# ec.com
+# enduocapital.com
